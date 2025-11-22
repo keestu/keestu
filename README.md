@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @keestu
 - 👀 I’m interested in progress
-- 🌱 I’m currently learning to be an conqueror
-- 💞️ I’m looking to collaborate on taking the leap of faith
+- 🌱 I’m currently learning to be a harmoniser
+- 💞️ I’m looking to collaborate on Cyber awareness
 - 📫 How to reach me ...
 
 <!---
